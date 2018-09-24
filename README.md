@@ -1,2 +1,2 @@
-# couscous-yang-ditingkatkan
-learn easly and slow 
+Follow me and you can follow the world!
+stay  andjoy
